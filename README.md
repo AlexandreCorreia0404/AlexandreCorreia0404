@@ -10,4 +10,4 @@ Se você está procurando alguém comprometido, com sede de aprendizado e amor p
 
 📧 E-mail: xandeadac@gmail.com
 📞 Contato: (82) 98106-9883
-linkedin.com/in/alexandre-correia04/
+
